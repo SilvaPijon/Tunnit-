@@ -1,1 +1,1 @@
-Teeme tunnitööd.
+teeme tunnitööd, vist.
