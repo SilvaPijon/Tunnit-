@@ -1,1 +1,1 @@
-Teeme tunnitööd. OLGERI TÄIENDUS
+Teeme tunnitööd. OLGERI TÄIENDUS, vist.
